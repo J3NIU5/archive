@@ -1,2 +1,0 @@
-# Arsip
-ter 
